@@ -1,2 +1,0 @@
-# fundamental-RidhoPrimaEsha
-# fundamental-RidhoPrimaEsha
